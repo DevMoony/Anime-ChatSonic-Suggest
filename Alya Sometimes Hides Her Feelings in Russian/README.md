@@ -1,3 +1,5 @@
+<img src="./tokidoki-bosotto-russia-go-de-dereru-tonari-no-alya-san.png" />
+
 <strong>Type:</strong> Summer 2024 Anime
 
 <strong>Plot Summary:</strong>
